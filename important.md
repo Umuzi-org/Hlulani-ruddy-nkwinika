@@ -1,0 +1,1 @@
+It's important to fully understand the work bacause i want to produce higher quality results.
